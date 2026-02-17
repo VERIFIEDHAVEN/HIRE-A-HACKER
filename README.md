@@ -74,5 +74,5 @@ Email: verifiedhacks1@gmail.com
 
 Telegram: @verifiedhackss
 
-Official Website: www.verifiedhaven.com
+
 
